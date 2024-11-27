@@ -1,0 +1,1 @@
+do em quay video bằng Win + G nên chỉ quay đc 1 tab màn hình e gửi thêm ảnh e làm trong lúc quay để làm minh chứng ![image](https://github.com/user-attachments/assets/003dd114-454e-489e-b707-49b3e264f707)
